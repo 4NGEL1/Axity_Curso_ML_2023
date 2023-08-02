@@ -18,6 +18,8 @@ claudia.sameshima@axity.com
 
 Participantes ....  
 
+Miguel Ángel Mondragón
+
 
 ## Agenda
 
